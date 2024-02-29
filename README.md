@@ -1,2 +1,5 @@
 # ST1-assign
-total of 7 experimental code pushed
+SIMARJEET SINGH 
+2310997355
+
+total of 7 experimental code pushed.
